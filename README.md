@@ -16,7 +16,7 @@ Fastest SUVs in the world
 5. Alpha Romeo Stelvio Quadrifoglio
 
 ## Insane Luxury
-When you buy a Lamborghini Urus brand new, you can customize every detail of the paint to the color of the seatbelt. The car has the highest quality Italian leather that you can choose the color of. There is endless options you can choose from with the Urus. These options allow you you to change almost every feauture of the car which allows you to completely personalize the car. One of the more unique options is the abilility to add a towing kit which allows you to carry a trailer on your Lamborghini.
+When you buy a Lamborghini Urus brand new, you can customize every detail of the paint to the color of the seatbelt. The car has the highest quality Italian leather, that you can choose the color of. There is endless options you can choose from with the Urus. These options allow you you to change almost every feauture of the car which allows you to completely personalize the car. One of the more unique options is the ability to add a towing kit which allows you to carry a trailer on your Lamborghini.
 
 ## Price
 The price of owning the best does not come cheap. The base price for a Urus is 200,000 dollars. If you add the options it can go way over this base price.
